@@ -1,1 +1,1 @@
-# Concentraci-n
+# Concentracion
